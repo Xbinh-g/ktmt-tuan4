@@ -1,4 +1,3 @@
-Nguyễn Xuân Bình - 25119059 
-Tôi tên Bình họ Nguyễn lót Xuân 
-cuộc đời là bể khổ
-Có cái bự tổ
+họ và tên: Nguyễn Lai Thái An
+Mssv: 25119053
+Sinh viên năm 1, ngành ktmt, dh sư phạm kỹ thuật tphcm

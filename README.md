@@ -11,4 +11,6 @@ Nguyễn Lai Thái An- 25119053
 whale
 
 Võ Trí Bằng - 25119057
+Đời giông bão không làm anh lay đão 
+
 <img src="anh.jpg" alt="isolated" width="400"/>

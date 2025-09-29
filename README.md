@@ -6,3 +6,5 @@ Mèo và cáo
 
 Phạm Nguyễn Hồng Phúc - 25119130
 nghèo
+Nguyễn Lai Thái An- 25119053
+whale

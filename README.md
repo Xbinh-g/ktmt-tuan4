@@ -9,3 +9,5 @@ nghèo
 
 Nguyễn Lai Thái An- 25119053
 whale
+
+<img width="474" height="431" alt="image" src="https://github.com/user-attachments/assets/21b554e4-56ad-4991-83d5-c45b2841262b" />

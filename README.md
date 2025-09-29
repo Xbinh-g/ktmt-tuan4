@@ -1,4 +1,3 @@
-Nguyễn Xuân Bình - 25119059 
-Tôi tên Bình họ Nguyễn lót Xuân 
-cuộc đời là bể khổ
-Có cái bự tổ
+Phạm Nguyễn Hồng Phúc
+25119130
+sư phạm kỹ thuật hcm

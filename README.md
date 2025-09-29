@@ -3,3 +3,6 @@ Tên Bình họ Nguyễn lót Xuân
 
 Trần Hữu Bảo Duy - 25119063
 Mèo và cáo
+
+Phạm Nguyễn Hồng Phúc - 25119130
+nghèo

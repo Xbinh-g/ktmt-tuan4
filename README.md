@@ -11,3 +11,4 @@ Nguyễn Lai Thái An- 25119053
 whale
 
 Võ Trí Bằng - 25119057
+<img src="anh.jpg" alt="isolated" width="400"/>
